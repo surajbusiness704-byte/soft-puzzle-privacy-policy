@@ -1,0 +1,1 @@
+# soft-puzzle-privacy-policy
